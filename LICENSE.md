@@ -1,4 +1,4 @@
-# 
+# smart NFT Flip Bot for nft wash trading bot | take-profit & auto-buy is the best nft wash trading bot, featuring take-profit and auto-buy. Fast, smart, and optimized for NFT
 
 
 
